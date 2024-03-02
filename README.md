@@ -1,4 +1,4 @@
-[![JMNIIfa.md.png](https://iili.io/JMNIIfa.md.png)](https://freeimage.host/i/JMNIIfa)
+[![JMNzG9V.th.png](https://iili.io/JMNzG9V.th.png)](https://freeimage.host/i/JMNzG9V)
 
 # PRIVA (Privacy-Respecting Integrated Virtual Asset)
 
