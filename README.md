@@ -1,4 +1,4 @@
-[![Logo](https://dev-to-uploads.s3.amazonaws.com/uploads/articles/th5xamgrr6se0x5ro4g6.png)](https://privadocs.example.com)
+[![JMNzG9V.md.png](https://iili.io/JMNzG9V.md.png)](https://freeimage.host/i/JMNzG9V)
 
 # PRIVA (Privacy-Respecting Integrated Virtual Asset)
 
